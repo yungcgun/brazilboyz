@@ -3,7 +3,7 @@ swag?
 
 DISCORD NITRO BRAZYLIA APPSTORE IOS
 #
-LINKI I WAŻNE INFO
+LINKI I WAŻNE INFO BO YT WALI Z UCHA U KNOW HOW WE ROCKIN
 - Generator adresów:
  https://www.bestrandoms.com/random-address-in-br
 
